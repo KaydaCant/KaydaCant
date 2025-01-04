@@ -4,4 +4,4 @@
   - Music
   - Art
  
- You can reach me through my discord: KaydaCant#3752
+ You can reach me through my discord: KaydaCant
