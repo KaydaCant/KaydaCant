@@ -1,7 +1,5 @@
 ### Hi, I'm Kayda.
-- I am learning:
-  - Game Development
-  - Music
-  - Art
+Game developer, composer, etc, etc.
  
- You can reach me through my discord: KaydaCant
+Discord: KaydaCant
+Everywhere else: also KaydaCant probably
